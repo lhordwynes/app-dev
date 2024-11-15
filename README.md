@@ -23,7 +23,7 @@ of this show is godlike and is one of the greatest feats of animation industry i
 
 You can watch the trailer here if this sparks your curiosity!
 
-[Youtube](https://www.youtube.com/watch?v=4Ps6nV4wiCE)
+[Arcane Trailer](https://www.youtube.com/watch?v=4Ps6nV4wiCE)
 
 
 
